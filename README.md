@@ -1,0 +1,1 @@
+# farukokutan.github.io
